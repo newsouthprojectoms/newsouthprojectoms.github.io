@@ -3,7 +3,7 @@ This is simply a website that was created for in Febuary 10th, 2025. Made for a 
 
 ![Image](https://github.com/user-attachments/assets/f5b9810e-3c7b-46cd-b7b9-7c2f25b1e3f8)
 
-# The Bourbon Triumivates and their members.
+# The Bourbon Triumivate and their members.
 
 ## Joseph E. Brown
 
@@ -28,4 +28,4 @@ John B. Gordon was a member of the Bourbon Trimvirate, he was born on February 6
 # WHAT WERE THEIR GOALS?
 
 
-The members 
+**GOAL NUMBER 1** The members of the Bourbon Trimvirate, Brown, Colquitt, and Gordon wanted to make Georgia's former large and main working class, Farms, with a new middle and business class.
