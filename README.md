@@ -28,4 +28,41 @@ John B. Gordon was a member of the Bourbon Trimvirate, he was born on February 6
 # WHAT WERE THEIR GOALS?
 
 
-**GOAL NUMBER 1** The members of the Bourbon Trimvirate, Brown, Colquitt, and Gordon wanted to make Georgia's former large and main working class, Farms, with a new middle and business class.
+**GOAL NUMBER 1** 
+The members of the Bourbon Trimvirate, Brown, Colquitt, and Gordon wanted to make Georgia's former large and main working class, Agriculture, with a new middle and business class.
+
+**GOAL NUMBER 2**
+They wanted Georgia's economy to instead of focusing on agricultural methods, to manufacture, and produce their own goods self-efficently.
+
+# Unfortunately...
+
+Georgia hardly had any money to make these changes.
+
+
+# A quick solution...
+
+After the men had realized this, they had still not gave up in their goals and were determined in reaching their goals. They then turned to investors, but instead investors in the South, they instead looked for investors in the North, since after Reconstruction and the Civil War had completely crushed the South's economy.
+
+# A rise in power, economic power.
+
+Their solution turned out to completely change their goals, as then they started to gain political and economic power over Georgia from 1872 to 1890, with either one of the men serving in the government as a governor or a U.S. Senator.
+
+# The downfall
+
+The Bourbon Trimvirate started to lose power in 1890, for various reasons. 
+
+**REASON 1**
+
+All three men were former seccesionists, and still supported members of the Antebellum planter class.
+
+**REASON 2**
+
+They had established lower taxes, and resulted in little or no service in government jobs to Georgia citizens, which at that time were in economic hardship.
+
+**REASON 3**
+
+Each one of the men were white supremacists.
+
+# So, Did they reach their goals?
+
+The Bourbon Triumivirate members did reach their goals, and significantly changed Georgia's economy, social structure, and the politics.
