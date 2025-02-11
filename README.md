@@ -66,3 +66,10 @@ Each one of the men were white supremacists.
 # So, Did they reach their goals?
 
 The Bourbon Triumivirate members did reach their goals, and significantly changed Georgia's economy, social structure, and the politics.
+
+
+# Now, lets move onto a different topic.
+
+## Who was Tom Watson?
+
+
