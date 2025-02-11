@@ -3,7 +3,7 @@ This is simply a website that was created for in Febuary 10th, 2025. Made for a 
 
 ![Image](https://github.com/user-attachments/assets/f5b9810e-3c7b-46cd-b7b9-7c2f25b1e3f8)
 
-### The Bourbon Triumivates and their members.
+# The Bourbon Triumivates and their members.
 
 ## Joseph E. Brown
 
