@@ -17,6 +17,8 @@ Joseph E. Brown was a member of the Bourbon Triumvirate, born on April 15th, 182
 
 Alfred H. Colquitt was a member of the Bourbon Trimvirate. He was born on April 20th, 1824, and then died on March 26, 1894. He was a American lawyer, a preacher, a soldier, politician, and was elected as the 49th Governor of the state of Georgia.
 
+#### WHAT WERE THEIR GOALS?
+
 ## John B. Gordon
 
 ![Image](https://github.com/user-attachments/assets/0a881b7e-3d04-4927-a16d-bd3d650ea30b)
