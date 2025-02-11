@@ -73,7 +73,7 @@ The Bourbon Triumivirate members did reach their goals, and significantly change
 
 ## Who was Tom Watson?
 
-![Image](https://github.com/user-attachments/assets/13fe1a0c-d0eb-4401-8b94-14d9afee2843)
+
 
 
 Tom Watson was a American politician, attorney, newspaper writer, and a newspaper editor from Georgia. He was born on September 5th, 1856 and died on September 26th, of 1922.
