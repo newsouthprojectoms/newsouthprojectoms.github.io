@@ -142,7 +142,37 @@ African americans could not marry white people.
 
 African Americans had to have seperate textbooks then white people.
 
+# Plessy v. Ferguson
 
+![Image](https://github.com/user-attachments/assets/53d8df7c-59c7-4467-b115-7f96f061e524)
+
+Homer Plessy, a white-black American that was arrested for sitting in the "White's only" section of a railcar. Homer Plessy was seven-eigths white, and one-eigth black. Still, he was still considered black and still was arrested by the local authorities. Plessy was found guilty by Supreme Court. Plessy then appealed to the Supreme Court, and Supreme Court ruled against Plessy, and according to them they only protected civil and political rights, instead of social rights.
+
+## The outcome?
+
+The U.S. Supreme Court ended this case by saying that segregation was constitutional aslong if the segregated facilites were still the same as the other non-segregated facilities.
+
+# DISENFRANCHISEMENT
+
+Although the 15th Amendment protected black americans right to vote, Southerners still found this unacceptable and created ways to keep black americans from voting.
+
+Poll Taxes
+
+![Image](https://github.com/user-attachments/assets/2fbd5b99-cb57-4832-b779-60c2b563768d)
+
+All voters had to pay a 1 dollar tax in order to proceed to the voting process. Many Black Americans in this era were very poor and were unable to pay the tax.
+
+Literacy Tests
+
+![Image](https://github.com/user-attachments/assets/00166ca8-3e93-4bd7-a614-1f89374a5687)
+
+In order to proceed into the voting process in this era, you had to take a literacy test. Many Black Americans were either uneducated, illiterate. Education for African Americans was not that common, and most of the Georgian black population was illiterate. 
+
+Intimidation by the KKK
+
+![Image](https://github.com/user-attachments/assets/7bc94ac6-88a3-4b42-b882-9f6e3d628f23)
+
+Klansmen often used intimidation tactics to scare away any black americans from getting into a poll place. Klansmen also did everything possible to prevent any African-American from voting, often surrounding voting buildings.
 
 ![Image](https://github.com/user-attachments/assets/64cc12fe-2c43-4231-910d-459081901b8b)
 THIS PAGE IS UNDER CONSTRUCTION, BE AWARE! 
