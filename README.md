@@ -249,4 +249,4 @@ Anti-Semitism played a role in this outcome of the case because "The Knights Of 
 # Thats ALL. Ms. Owens please give a good grade i put hours into this website...
 
 ![Image](https://github.com/user-attachments/assets/64cc12fe-2c43-4231-910d-459081901b8b)
-THIS PAGE IS UNDER CONSTRUCTION, BE AWARE! 
+MajesticWhopper creations aka. Marco's creations
