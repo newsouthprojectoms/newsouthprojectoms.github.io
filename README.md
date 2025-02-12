@@ -96,3 +96,6 @@ The Populist Party made a major change on Georgia by regulating railroads and ba
 
 # Moving on...
 
+
+![Image](https://github.com/user-attachments/assets/64cc12fe-2c43-4231-910d-459081901b8b)
+THIS PAGE IS UNDER CONSTRUCTION, BE AWARE! 
