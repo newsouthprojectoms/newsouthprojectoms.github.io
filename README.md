@@ -120,5 +120,29 @@ The International Cotton Expo was a series of fairs made to show the industrial 
 
 Henry Grady had a partial success, as he had managed to uplift the agriculture economy to more of a industrial economy, but some still remained poor and sharecropping among black and white workers.
 
+# Jim Crow Laws
+
+![Image](https://github.com/user-attachments/assets/ad96c614-6b66-4962-b8a8-fd11d89fb14d)
+
+Although economic improvements in the New South era were successful, discrimination against Black Americans still continued, and to enforce discrimination Jim Crow Laws were implemented throughout the South. It was named after a black fictional cartoon character, aswell.
+
+# What were Jim Crow Laws?
+
+Jim Crow Laws were laws made and passed by states throughout the South to segregate African Americans. The Jim Crow Laws included laws that were able to affect their social lifestyle, education and more.
+
+![Image](https://github.com/user-attachments/assets/0aa4f822-e0ea-4540-89c8-182c6d3159ee)
+
+Required African Americans and white people to be segregated in public facilities, schools, and parks, and public transportation vehicles.
+
+![Image](https://github.com/user-attachments/assets/e291f0be-3d37-41e3-aa11-69cb022af171)
+
+African americans could not marry white people.
+
+![Image](https://github.com/user-attachments/assets/d741b6eb-7b51-4680-973e-f5d4156e0e0c)
+
+African Americans had to have seperate textbooks then white people.
+
+
+
 ![Image](https://github.com/user-attachments/assets/64cc12fe-2c43-4231-910d-459081901b8b)
 THIS PAGE IS UNDER CONSTRUCTION, BE AWARE! 
