@@ -3,7 +3,7 @@ This is simply a website that was created for in Febuary 10th, 2025. Made for a 
 
 ![Image](https://github.com/user-attachments/assets/f5b9810e-3c7b-46cd-b7b9-7c2f25b1e3f8)
 
-# The Bourbon Triumivate and their members.
+# The Bourbon Triumvirate and their members.
 
 ## Joseph E. Brown
 
@@ -67,9 +67,7 @@ Each one of the men were white supremacists.
 
 The Bourbon Triumivirate members did reach their goals, and significantly changed Georgia's economy, social structure, and the politics.
 
-
 # Now, lets move onto a different topic.
-
 
 ## Who was Tom Watson?
 
@@ -77,7 +75,24 @@ The Bourbon Triumivirate members did reach their goals, and significantly change
 
 Tom Watson was a American politician, attorney, newspaper writer, and a newspaper editor from Georgia. He was born on September 5th, 1856 and died on September 26th, of 1922.
 
-# The Populist Party and Tom Watson
+## Before we move on to the Populist Party, Lets envolve the backstory.
 
-Tom Watson
+Lets say Georgia was now growing economically, as businesses and banks began to succeed in the economy, But farmers, instead of gaining money, they began to face obstacles in the economy. Labor was also rare to find, after the Civil War.
+
+# Now how does this envolve Tom Watson, you might ask?
+
+![Image](https://github.com/user-attachments/assets/e79f9820-6e12-4230-a0d6-9798750089c0)
+
+Tom Watson was involved in the leadership of the Farmer's Alliance, which was made in March 21st of 1877, to the Populist Party. The Farmer's Alliance was made by a few farmers for forming cooperatives to improve the economic state of farmers in the 1870s.
+
+![Image](https://github.com/user-attachments/assets/a1516a86-5e0c-49a1-86e7-47ecebf7d4a6)
+
+In 1891, though Tom Watson was not involved in the creation of the Populist Party, he was one of the leaders of the political party. The People's Party, Or mainly known as the Populist Party, represented the "common man" and the farmers of the South. Their beliefs were the interest protection of farmers, and then urged them to work together for their cause. They also encouraged black and white equality, lower state taxes for farmers, more government control of railroads, labor laws that would limit the workday hours to eight hours, and better roads.
+
+
+# Success or failure?
+
+The Populist Party made a major change on Georgia by regulating railroads and banks to avoid any misuse of farmers, A graduated income tax, and fair elections for US Senators.
+
+# Moving on...
 
