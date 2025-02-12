@@ -96,6 +96,29 @@ The Populist Party made a major change on Georgia by regulating railroads and ba
 
 # Moving on...
 
+## Henry Grady
+
+![Image](https://github.com/user-attachments/assets/cedd78c0-522d-493c-8a38-12ab5c3351f6)
+
+Henry Grady, was the editor of the _Atlanta Constitution_ Newspaper. He was born on May 24th, of 1850, and died on December 23rd of 1889.
+
+# Henry Grady's goalss
+
+![Image](https://github.com/user-attachments/assets/8984bb80-b2db-4265-8b02-84784b06c7cd)
+
+Henry Grady was a strong supporter of industrial growth in the South.
+
+Made the term "The New South" popular and represented the growth of industrial economics in Georgia.
+
+# _The International Cotton Expo_
+
+![Image](https://github.com/user-attachments/assets/557077dc-adc1-4a7e-ab3d-ba7bfb4cd15a)
+
+The International Cotton Expo was a series of fairs made to show the industrial improvements, populate the city, and attract more investors.
+
+# Success or failure?
+
+Henry Grady had a partial success, as he had managed to uplift the agriculture economy to more of a industrial economy, but some still remained poor and sharecropping among black and white workers.
 
 ![Image](https://github.com/user-attachments/assets/64cc12fe-2c43-4231-910d-459081901b8b)
 THIS PAGE IS UNDER CONSTRUCTION, BE AWARE! 
