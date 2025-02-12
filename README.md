@@ -174,5 +174,79 @@ Intimidation by the KKK
 
 Klansmen often used intimidation tactics to scare away any black americans from getting into a poll place. Klansmen also did everything possible to prevent any African-American from voting, often surrounding voting buildings.
 
+# THE ATLANTA RACE RIOT
+
+![Image](https://github.com/user-attachments/assets/eb15a63c-bc3c-4d71-bba7-65b3c2b7f235)
+
+The Atlanta Race Riot was a massacre led by multiple mobs of armed white americans, which attacked local African-American citizens present in Atlanta. 
+
+These armed white men had apparently had a reason for this, because of alledged 4 incidents where reports said black men assaulting white women. They also did this because many unemployed whites were afraid of black americans threatening jobs and social orders.
+
+Georgia's militia was evantually called in, but due to the slow reaction time of the government, 12 people were already killed in the riot. 
+
+This led to strict and deeper segregation throughout Atlanta, and a economic division of between African-Americans and white americans.
+
+# BOOKER T. WASHINGTON
+
+![Image](https://github.com/user-attachments/assets/bed9ca93-0d92-4c95-8f54-26923968e2aa)
+
+Booker T. Washington was a American educator, author, and a orator. He was born as a slave on April 5th, 1856 and died on November 14th, of 1915.
+
+## Booker T. Washington's ideas for equality.
+
+Washington believed all blacks had to accept social segregation instead of fighting it, and prove themselves in different fields, to eventually gain full civil rights. Basically, he intended all blacks to be non-violent and accept segregation in order to gain back their civil rights.
+
+# WEB DUBOIS
+
+![Image](https://github.com/user-attachments/assets/93c2e445-3af2-4ec7-9a97-ba2a83e28f94)
+
+W.E.B. Dubois was a American sociologist, socialist, historian, and a Pan-Africanist civil rights activist. He was born on February 23rd, of 1868, and died on August 27th, 1963.
+
+## WEB Dubois's ideas for equality.
+
+African-Americans should not settle for training a low-paying job, instead they should get a college education.
+
+African-Americans should fight for their civil rights.
+
+# ALONZO HERNDON
+
+![Image](https://github.com/user-attachments/assets/9b603a4f-7667-408f-9c81-d2f1ded4ed85)
+
+Alonzo Herndon was a entrepeuneur and a businessman. He was born on July 26th, on 1858. He died on July 21st, 1927.
+
+## Alonozo Herndon's involvement in racial equality
+
+![Image](https://github.com/user-attachments/assets/d558e3c6-ad84-412a-b586-6c74426ba3cf)
+
+He made the Atlanta Life Insurance Company, a company that would insure African Americans, which was not that common at that time. He ensured to sell low honest policies to low-income customers.
+
+Using his wealth, he donated to organizations such as the YMCA, and the Atlanta University.
+
+# THE LEO FRANK CASE
+
+The Leo Frank Case was a murder case that occured in 1913, which involved Leo Frank, a pencil factory manager, Mary Phagan, the victim, a 13 year old who was alledgly strangled to death in the basement of the pencil factory by Leo Frank. The three suspects were Leo Frank, Jim Conley, the pencil's factory janitor who was arrested after having "blood" stains in his shirt, Newt Lee, the pencil's factory nightguard, who found Mary Phagan's corpse.
+
+## Who did the murder?
+
+Jim Conley was a main suspect, due to being African American and having blood stains on his shirt when he was arrested at the scene.
+
+He was later excused from the case, due to a lack of mental capacity to murder someone.
+
+Leo Frank was also one of the main suspects. Due to the reputation of Northern factory owners, and anti-Semitism was widely spread throughout the nation at that time, And it was difficult for a fair trial.
+
+According to reports, Leo Frank was also seen very nervous while being questioned by the authorities.
+
+And according to Conley, Frank had a reputation of harrasing young, white, female employees. 
+
+Leo Frank was then found guilty of the murder and sentenced to death.
+
+However, attorney William Smith that helped originally convict Frank, started to believe in Frank's innocence and eventually convinced senator John Slaton to lower Leo Frank's sentence to life imprisonment. 
+
+Citizens of Georgia, did not find this a good decision and kidnapped Leo Frank out of prison, and brang him to Marietta, GA, and was eventually lynched by mobs.
+
+Anti-Semitism played a role in this outcome of the case because "The Knights Of Mary Phagan" had kidnapped Leo Frank and lynched him in the middle of Marietta's town square. It was eventually found that Jim Conley had murdered Mary Phagan.
+
+# Thats ALL. Ms. Owens please give a good grade i put hours into this website...
+
 ![Image](https://github.com/user-attachments/assets/64cc12fe-2c43-4231-910d-459081901b8b)
 THIS PAGE IS UNDER CONSTRUCTION, BE AWARE! 
